@@ -20,3 +20,24 @@ Como desenvolver e treinar os músculos do raciocínio estratégico?
 
 Quando você pensa de forma mais ampla sobre sua função e alinha suas atividades à missão da empresa, você gera valor para a empresa.
 
+O raciocínio estratégico é mais produtivo quando feito em equipe.
+
+## Explorar as principais tendências
+
+Seja qual for o seu cargo, é fácil cair na armadilha de pensar pequeno. Afinal, quem tem tempo para pensar em tendências tecnológicas, novos concorrentes ou mudanças nas necessidades dos clientes?
+
+Contudo, para definir da melhor maneira onde concentrar sua energia, é preciso saber de que forma seu trabalho se enquadra no quadro geral.
+
+![image](https://user-images.githubusercontent.com/52088444/185979040-500829a5-7395-4790-85d0-97d419e988cc.png)
+
+Buscar perguntas, não respostas
+À medida que reúne informações sobre o contexto mais amplo, você começa a identificar padrões – parcerias interessantes, clientes migrando para novas tecnologias, investimentos em determinados projetos na empresa.
+
+Agora, é hora de dar vazão à sua curiosidade. Qual é o impacto dessas forças na empresa e na equipe – agora e em longo prazo? De que formas você e seus colegas podem extrair o máximo dessas tendências?
+
+“As perguntas são o idioma do raciocínio estratégico.”
+– Nina Bowman, coach executiva
+Você pode achar que não está fazendo o seu trabalho a menos que passe boa parte do tempo encontrando as “respostas certas” para os desafios. Contudo, fazer perguntas de sondagem pode iniciar conversas dinâmicas em que as pessoas podem aprender juntas.
+
+Use quatro tipos de perguntas para obter insights sobre suas observações e usá-los a seu favor.
+
